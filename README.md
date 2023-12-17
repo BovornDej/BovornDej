@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **bovorn.d@ku.th**
 
-- ⚡ Fun fact **More Passion More Energy More footwork**
+- ⚡ Fun fact **More Passion More Energy More Footwork**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
